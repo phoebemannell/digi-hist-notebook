@@ -1,0 +1,1 @@
+And now if I make another note, I guess it will show up in the desktop client and then from there I put it online. 
